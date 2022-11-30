@@ -1,0 +1,1 @@
+schooling is amazing
