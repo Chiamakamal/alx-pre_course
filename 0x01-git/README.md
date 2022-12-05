@@ -1,1 +1,1 @@
-schooling is amazing
+schooling is aesome
